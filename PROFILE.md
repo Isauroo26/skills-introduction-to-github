@@ -1,2 +1,2 @@
-Welcome to my GitHub profile!
-Hola soy jona
+Welcome to my GitHub profi
+Soy jona
